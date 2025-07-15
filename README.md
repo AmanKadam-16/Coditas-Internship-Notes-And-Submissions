@@ -1,1 +1,1 @@
-# Codtas-Internship-Notes-And-Submissions
+# Coditas-Internship-Notes-And-Submissions
